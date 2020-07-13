@@ -1,2 +1,6 @@
 # Hello-World
-Time pass
+
+Hi humans!
+
+Divish here i like mango
+I like Rajma Chawa
